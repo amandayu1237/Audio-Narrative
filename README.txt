@@ -1,7 +1,7 @@
 # Audio Narrative
  Composing Digital Media
 
-Summery: My audio narrative explores the stigma surrounding community college and how it shaped my academic journey. Initially, I believed the stereotype that community college was a lesser option, but financial practicality led me to reconsider. Through personal reflections and interviews, I highlight its benefits—affordability, academic growth, and smoother university transitions. To enhance engagement, I’ll incorporate classroom sounds, whispers symbolizing social judgment, and a ticking clock to emphasize pressure. My goal is to challenge misconceptions and connect with students facing similar doubts. By integrating feedback and creative audio elements, I hope to reshape perceptions of community college’s value.
+Summery: My audio narrative explores the stigma surrounding community college and how it shaped my academic journey. Initially, I believed the stereotype that community college was a lesser option, but financial practicality led me to reconsider. Through personal reflections and interviews, I highlight its benefits—affordability, academic growth, and smoother university transitions. My goal is to challenge misconceptions and connect with students facing similar doubts. By integrating feedback and creative audio elements, I hope to reshape perceptions of community college’s value.
 
 Credits:
 
