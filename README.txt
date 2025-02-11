@@ -10,3 +10,4 @@ https://freesound.org/people/ycbcr/sounds/556991/
 https://freesound.org/people/Sorinious_Genious/sounds/559899/
 https://freesound.org/people/kyles/sounds/450449/
 https://freesound.org/people/241378/sounds/766765/
+Lanahan, L. (2022, February 9). “it’s just too much”: Why students are abandoning community colleges in droves. The Hechinger Report. https://hechingerreport.org/its-just-too-much-why-students-are-abandoning-community-colleges-in-droves/ 
